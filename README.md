@@ -1,2 +1,1 @@
-# Mi-Clan
-Clan para cubanos
+Tressord Barber Shop
